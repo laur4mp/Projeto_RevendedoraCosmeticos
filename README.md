@@ -1,1 +1,1 @@
-# Projeto_RevendedoraCosm-ticos
+# Projeto_RevendedoraCosmeticos
